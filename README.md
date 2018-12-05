@@ -1,0 +1,2 @@
+# shootbyduminica
+my photography website
